@@ -10,8 +10,8 @@
 **03投资记录**
 * 《巴菲特历年致股东书信原件-中英文版》 [百度云连接](https://pan.baidu.com/s/1405UootiGAMaCw7c8vcVOw) 提取码：4r8p
 
-**人物传记**
-
+**04人物传记**
+* 《滚雪球：巴菲特和他的财富人生 上下2册》[百度云连接](https://pan.baidu.com/s/1Td2Na3zhuHOhL1Chi4A1Tg) 提取码：mh3o
 
 
 
