@@ -18,11 +18,8 @@
 * 《妙趣横生博弈论：事业与人生的成功之道》 [百度云连接](https://pan.baidu.com/s/1KAvKenWdupqUHLv502Ho5g) 提取码：82zq
 
 
-
-
-
-
 **06数学**
+* 《概率导论（美）Dimitri P. Bertsekas》 [百度云连接](https://pan.baidu.com/s/1zVm3QsaHBIkYSy5mMrG7bw) 提取码：u8gj
 
 
 
