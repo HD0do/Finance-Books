@@ -6,6 +6,8 @@
 **02投资基础**
 * 《投资学》  [百度云连接](https://pan.baidu.com/s/18F1oUnzmA0WFOYuJR2mLEg) 提取码：x2un
 * 《期权、期货及其他衍生产品（原书第9版）》  [百度云连接](https://pan.baidu.com/s/1uTUbT0Opn5__go2u71RMSg) 提取码：n1av
+* 《日本蜡烛图技术》[百度云连接](https://pan.baidu.com/s/1fjZcjfzsPvOjeveO01k2AQ) 提取码：30xy
+
 
 **03投资记录**
 * 《巴菲特历年致股东书信原件-中英文版》 [百度云连接](https://pan.baidu.com/s/1405UootiGAMaCw7c8vcVOw) 提取码：4r8p
@@ -27,4 +29,4 @@
 ***
 交流学习使用
 
-<b><font size=3 color=#00ff00 face="黑体">策略、乐趣热爱 or/and 知识</font></b>
+<b><font size=3 color=#00ff00 face="黑体">策略、乐趣热爱 or/and 知识本质</font></b>
