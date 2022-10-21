@@ -14,6 +14,15 @@
 * 《滚雪球：巴菲特和他的财富人生 上下2册》[百度云连接](https://pan.baidu.com/s/1Td2Na3zhuHOhL1Chi4A1Tg) 提取码：mh3o
 * 《原则》 [百度云连接](https://pan.baidu.com/s/17s-5vHldXQTuBFtMZ2oXEA)  提取码：x8ft
 
+**05方法理念**
+* 《妙趣横生博弈论：事业与人生的成功之道》 [百度云连接](https://pan.baidu.com/s/1KAvKenWdupqUHLv502Ho5g) 提取码：82zq
+
+
+
+
+
+
+**06数学**
 
 
 
