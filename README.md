@@ -28,3 +28,5 @@
 
 ***
 交流学习使用
+
+<b><font size=3 color=#00ff00 face="黑体">策略、乐趣热爱 or/and 知识</font></b>
