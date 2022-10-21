@@ -19,7 +19,8 @@
 
 
 **06数学**
-* 《概率导论（美）Dimitri P. Bertsekas》 [百度云连接](https://pan.baidu.com/s/1zVm3QsaHBIkYSy5mMrG7bw) 提取码：u8gj
+* 《概率导论（美）Dimitri P. Bertsekas》 [百度云连接](https://pan.baidu.com/s/1HnE2S6jbDrX4Iqq5mnUfxg) 提取码：99zm
+
 
 
 
