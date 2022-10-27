@@ -16,6 +16,9 @@
 **04人物传记**
 * 《滚雪球：巴菲特和他的财富人生 上下2册》[百度云连接](https://pan.baidu.com/s/1Td2Na3zhuHOhL1Chi4A1Tg) 提取码：mh3o
 * 《原则》 [百度云连接](https://pan.baidu.com/s/17s-5vHldXQTuBFtMZ2oXEA)  提取码：x8ft
+* 《全身而退 短线大师伯纳德·巴鲁克自传》[百度云连接](https://pan.baidu.com/s/16bOtwAmgRDNoVJbGM8wnQQ)  提取码：wdys
+
+
 
 **05方法理念**
 * 《妙趣横生博弈论：事业与人生的成功之道》 [百度云连接](https://pan.baidu.com/s/1KAvKenWdupqUHLv502Ho5g) 提取码：82zq
