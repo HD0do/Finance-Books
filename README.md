@@ -7,6 +7,7 @@
 * 《投资学》  [百度云连接](https://pan.baidu.com/s/18F1oUnzmA0WFOYuJR2mLEg) 提取码：x2un
 * 《期权、期货及其他衍生产品（原书第9版）》  [百度云连接](https://pan.baidu.com/s/1uTUbT0Opn5__go2u71RMSg) 提取码：n1av
 * 《日本蜡烛图技术》[百度云连接](https://pan.baidu.com/s/1fjZcjfzsPvOjeveO01k2AQ) 提取码：30xy
+* 《股市趋势技术分析 原书第10版》 [百度云连接](https://pan.baidu.com/s/10LQGu9AdyIEqRRmIjciKxQ)  提取码：6j1r
 
 
 **03投资记录**
@@ -24,7 +25,8 @@
 * 《概率导论（美）Dimitri P. Bertsekas》 [百度云连接](https://pan.baidu.com/s/1HnE2S6jbDrX4Iqq5mnUfxg) 提取码：99zm
 
 
-
+--- 
+投资网站整理
 
 ***
 交流学习使用
