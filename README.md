@@ -22,6 +22,9 @@
 * 《期权、期货及其他衍生产品（原书第9版）》  [百度云链接](https://pan.baidu.com/s/1uTUbT0Opn5__go2u71RMSg) 提取码：n1av
 * 《日本蜡烛图技术》[百度云链接](https://pan.baidu.com/s/1fjZcjfzsPvOjeveO01k2AQ) 提取码：30xy
 * 《股市趋势技术分析 原书第10版》 [百度云链接](https://pan.baidu.com/s/10LQGu9AdyIEqRRmIjciKxQ)  提取码：6j1r
+* 《期货市场技术分析-约翰·墨菲》 [百度云链接](https://pan.baidu.com/s/1sXfO6lf_v2s_GXDwspQ15A)   提取码：7vwi
+
+
 
 
 **03投资记录**
