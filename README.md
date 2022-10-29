@@ -51,6 +51,9 @@
 * 《概率导论（美）Dimitri P. Bertsekas》 [百度云链接](https://pan.baidu.com/s/1HnE2S6jbDrX4Iqq5mnUfxg) 提取码：99zm
 
 
+
+    掌握一项技能最好的方式就是在实践中去学习掌握，正如“没有调查就没有发言权”。
+
 --- 
 投资网站整理
 
@@ -58,4 +61,6 @@
 交流学习使用
 
 <b><font size=3 color=#00ff00 face="黑体">策略、乐趣热爱 or/and 知识本质</font></b>
+
+    
 
