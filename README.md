@@ -82,7 +82,7 @@
 
 <br/>
 
-<b><font size=3 color=绿色 face="黑体"><center> 策略、乐趣热爱 or/and 知识本质 </center></font></b>
+<center><b><font size=3 color=绿色 face="黑体">策略、乐趣热爱 or/and 知识本质</font></b></center>
 
     
 
