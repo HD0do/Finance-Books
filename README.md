@@ -30,6 +30,9 @@
 **03投资记录**
 * 《巴菲特历年致股东书信原件-中英文版》 [百度云链接](https://pan.baidu.com/s/1405UootiGAMaCw7c8vcVOw) 提取码：4r8p
 
+
+
+
 **04人物传记**
 * 《滚雪球：巴菲特和他的财富人生 上下2册》[百度云链接](https://pan.baidu.com/s/1Td2Na3zhuHOhL1Chi4A1Tg) 提取码：mh3o
 * 《原则》 [百度云链接](https://pan.baidu.com/s/17s-5vHldXQTuBFtMZ2oXEA)  提取码：x8ft
@@ -39,6 +42,9 @@
 
 **05方法理念**
 * 《妙趣横生博弈论：事业与人生的成功之道》 [百度云链接](https://pan.baidu.com/s/1KAvKenWdupqUHLv502Ho5g) 提取码：82zq
+* 《交易系统与方法（第五版）》[百度云链接](https://pan.baidu.com/s/1EJkNWUG3L8IAFBg-vGZE_A)    提取码：ec40
+
+
 
 
 **06数学**
