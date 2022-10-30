@@ -29,8 +29,7 @@
 
 **03投资记录**
 * 《巴菲特历年致股东书信原件-中英文版》 [百度云链接](https://pan.baidu.com/s/1405UootiGAMaCw7c8vcVOw) 提取码：4r8p
-
-
+* 《战胜华尔街（典藏版）》  [百度云链接](https://pan.baidu.com/s/1u92AKCLbVHzCpYdgIknwJQ)  提取码：oqkl
 
 
 **04人物传记**
