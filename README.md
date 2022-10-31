@@ -50,8 +50,7 @@
 
 **06数学**
 * 《概率导论（美）Dimitri P. Bertsekas》 [百度云链接](https://pan.baidu.com/s/1HnE2S6jbDrX4Iqq5mnUfxg) 提取码：99zm
-
-
+* 《深入浅出统计学》  [百度云链接](https://pan.baidu.com/s/1WUvaS6tam61IR1NvgDdgOQ)  提取码：3jch
 
 
 <br/>
