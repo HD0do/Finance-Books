@@ -12,6 +12,8 @@
 **01.公司金融&经济学**
 * 《公司理财》[百度云链接](https://pan.baidu.com/s/16D3uxNcKE_kBsHb4NOnFbw) 提取码：xgsz
 * 《经济学原理 曼昆上下册》[百度云链接](https://pan.baidu.com/s/1HsymUR__5OGw8680p_u_4A)   提取码：qxub
+* 《为什么我们的钱变薄了》  [百度云链接](https://pan.baidu.com/s/1QoH9-4QmwL3NgFKLSSqBDQ)  提取码：z9vu
+
 
 
 
