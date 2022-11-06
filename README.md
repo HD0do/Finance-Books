@@ -14,7 +14,7 @@
 * 《经济学原理 曼昆上下册》[百度云链接](https://pan.baidu.com/s/1HsymUR__5OGw8680p_u_4A)   提取码：qxub
 * 《为什么我们的钱变薄了》  [百度云链接](https://pan.baidu.com/s/1QoH9-4QmwL3NgFKLSSqBDQ)  提取码：z9vu
 * 《债券危机》   [百度云链接](https://pan.baidu.com/s/192J5lD-IR3JAL4mkRnPObQ)    提取码：x44h
-
+* 《外汇交易圣经》   [百度云链接](https://pan.baidu.com/s/1zhmCRwrObQJ1t5J0uZ7Flg)  提取码：zkf6
 
 
 
