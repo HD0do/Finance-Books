@@ -15,6 +15,11 @@
 * 《为什么我们的钱变薄了》  [百度云链接](https://pan.baidu.com/s/1QoH9-4QmwL3NgFKLSSqBDQ)  提取码：z9vu
 * 《债券危机》   [百度云链接](https://pan.baidu.com/s/192J5lD-IR3JAL4mkRnPObQ)    提取码：x44h
 * 《外汇交易圣经》   [百度云链接](https://pan.baidu.com/s/1zhmCRwrObQJ1t5J0uZ7Flg)  提取码：zkf6
+* 《外汇交易进阶：从新手到大师的成功之路》 [百度云链接](https://pan.baidu.com/s/1f-4cAAOj1B9cPEc5fvw-RA)  提取码：35lf
+
+
+
+
 
 
 
