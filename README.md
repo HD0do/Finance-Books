@@ -23,10 +23,6 @@
 
 
 
-
-
-
-
 **02投资基础**
 * 《投资学》  [百度云链接](https://pan.baidu.com/s/18F1oUnzmA0WFOYuJR2mLEg) 提取码：x2un
 * 《期权、期货及其他衍生产品（原书第9版）》  [百度云链接](https://pan.baidu.com/s/1uTUbT0Opn5__go2u71RMSg) 提取码：n1av
@@ -35,6 +31,11 @@
 * 《期货市场技术分析-约翰·墨菲》 [百度云链接](https://pan.baidu.com/s/1sXfO6lf_v2s_GXDwspQ15A)   提取码：7vwi
 * 《股市稳赚(美)乔尔·格林布拉特》  [百度云链接](https://pan.baidu.com/s/1Hn66v9vYK4AQTARtMjhdSw)  提取码：8s04
 * 《聪明的投资者》  [百度云链接](https://pan.baidu.com/s/1bUfUe-P5NNG7Ww30OaCVyA)   提取码：mc8k
+* 《配置的艺术》    [百度云链接](https://pan.baidu.com/s/148vi6-d51Vn09cw9seYltg)    提取码：zs6m
+
+
+
+
 
 
 
