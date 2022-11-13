@@ -61,6 +61,10 @@
 * 《妙趣横生博弈论：事业与人生的成功之道》 [百度云链接](https://pan.baidu.com/s/1KAvKenWdupqUHLv502Ho5g) 提取码：82zq
 * 《交易系统与方法（第五版）》[百度云链接](https://pan.baidu.com/s/1EJkNWUG3L8IAFBg-vGZE_A)    提取码：ec40
 * 《博弈论与经济行为 上下》    [百度云链接](https://pan.baidu.com/s/1zWoCOmGE8VWG4zQ_8fqEwA)  提取码：3u7f
+* 《笑傲股市》    [百度云链接](https://pan.baidu.com/s/1rF0Lrae_flHD-siAsXFPAg)  提取码：gz61
+
+
+
 
 
 
