@@ -45,7 +45,11 @@
 
 **03投资记录**
 * 《巴菲特历年致股东书信原件-中英文版》 [百度云链接](https://pan.baidu.com/s/1405UootiGAMaCw7c8vcVOw) 提取码：4r8p
-* 《战胜华尔街（典藏版）》  [百度云链接](https://pan.baidu.com/s/1u92AKCLbVHzCpYdgIknwJQ)  提取码：oqkl
+* 《战胜华尔街（典藏版）》      [百度云链接](https://pan.baidu.com/s/1u92AKCLbVHzCpYdgIknwJQ)  提取码：oqkl
+*  《唐朝三部曲 巴芒演义》   [百度云链接](https://pan.baidu.com/s/1uFXrrGfZ0JAyPvkggWxIqA)  提取码：916a
+*  《唐朝三部曲 价值投资实战手册》            [百度云链接](https://pan.baidu.com/s/1yOXbP3ZbVggpBaZ7caGr3A)   提取码：rvgp
+*  《唐朝三部曲 手把手教你读财报》   [百度云链接](https://pan.baidu.com/s/1pb9hbNnXJQu1EYdbVgV15Q)   提取码：jm3i
+
 
 
 **04人物传记**
