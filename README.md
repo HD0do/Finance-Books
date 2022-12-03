@@ -33,7 +33,7 @@
 * 《聪明的投资者》  [百度云链接](https://pan.baidu.com/s/1bUfUe-P5NNG7Ww30OaCVyA)   提取码：mc8k
 * 《资产配置的艺术》    [百度云链接](https://pan.baidu.com/s/148vi6-d51Vn09cw9seYltg)    提取码：zs6m
 * 《以交易为生》    [百度云链接](https://pan.baidu.com/s/12Y_i4DA90vepXFJGOcpp5g)   提取码：o6oj
-
+* 《技术分析指标大全 原书第2版(高清)》[百度云链接](https://pan.baidu.com/s/1E9wjvdei_DlbVqS1332QnA)  提取码：m48k
 
 
 
