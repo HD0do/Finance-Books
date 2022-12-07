@@ -56,7 +56,9 @@
 * 《滚雪球：巴菲特和他的财富人生 上下2册》[百度云链接](https://pan.baidu.com/s/1Td2Na3zhuHOhL1Chi4A1Tg) 提取码：mh3o
 * 《原则》 [百度云链接](https://pan.baidu.com/s/17s-5vHldXQTuBFtMZ2oXEA)  提取码：x8ft
 * 《全身而退 短线大师伯纳德·巴鲁克自传》[百度云链接](https://pan.baidu.com/s/16bOtwAmgRDNoVJbGM8wnQQ)  提取码：wdys
-* 《穷查理宝典》 [百度云链接](https://pan.baidu.com/s/1Ge7PB9z7Hbmy9ppBSbatPw)   提取码：bz4x
+* 《穷查理宝典》  [百度云链接](https://pan.baidu.com/s/1Ge7PB9z7Hbmy9ppBSbatPw)   提取码：bz4x
+* 《股票大作手回忆录》  [百度云链接](https://pan.baidu.com/s/1an2_XABMToV8UToUGYGCuQ)  提取码：e470
+
 
 
 
