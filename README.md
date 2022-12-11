@@ -16,7 +16,8 @@
 * 《债券危机》   [百度云链接](https://pan.baidu.com/s/192J5lD-IR3JAL4mkRnPObQ)    提取码：x44h
 * 《外汇交易圣经》   [百度云链接](https://pan.baidu.com/s/1zhmCRwrObQJ1t5J0uZ7Flg)  提取码：zkf6
 * 《外汇交易进阶：从新手到大师的成功之路》 [百度云链接](https://pan.baidu.com/s/1f-4cAAOj1B9cPEc5fvw-RA)  提取码：35lf
-
+* 《证券分析 上》  [百度云链接](https://pan.baidu.com/s/1zTjw1tJxa7zlsjo07PSQeA)  提取码：2t68
+* 《证券分析 下》  [百度云链接](https://pan.baidu.com/s/1UB3ddoX24ezkvFQUj_LZdA)  提取码：44v3
 
 
 
@@ -72,6 +73,9 @@
 
 
 
+**行业分析**
+* 《竞争优势》  [百度云链接](https://pan.baidu.com/s/1sMJUsEqZc8VMMzrfMe6uAg)   提取码：qoyb
+* 《竞争战略》  [百度云链接](https://pan.baidu.com/s/1QSo3Ci6zkyWBEVNLJ4KY4g)   提取码：x2v7
 
 
 
@@ -79,7 +83,6 @@
 * 《概率导论（美）Dimitri P. Bertsekas》 [百度云链接](https://pan.baidu.com/s/1HnE2S6jbDrX4Iqq5mnUfxg) 提取码：99zm
 * 《深入浅出统计学》  [百度云链接](https://pan.baidu.com/s/1WUvaS6tam61IR1NvgDdgOQ)  提取码：3jch
 * 《统计学：从数据到结论》  [百度云链接](https://pan.baidu.com/s/1e1S7j3rOtsw5DP7M2Biemw)  提取码：rhep
-
 
 
 
