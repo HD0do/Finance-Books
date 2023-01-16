@@ -82,7 +82,11 @@
 * 《》   [百度云链接]()  
 * 《》   [百度云链接]()  
 * 《》   [百度云链接]()  
+* 《》   [百度云链接]()  
 
+* 《量化交易-如何建立自己的算法交易》   [百度云链接](https://pan.baidu.com/s/19irPsQFi2Ot6y6rWWRY3JQ)  提取码：4ifv
+* 《量化投资策略-如何实现超额收益》   [百度云链接](https://pan.baidu.com/s/13lX70GeSFCsn3mxi9Q4p3Q)  提取码：f9xd
+* 《量化投资策略与技术》   [百度云链接](https://pan.baidu.com/s/1R-5bOc1TQtxHPITYbgcsGA)  提取码：ibon
 * 《量化投资以python为工具》   [百度云链接](https://pan.baidu.com/s/1NodzvdMt7GhjIDwk9Crg9w)  提取码：tfv2
 * 《期货市场完全指南》   [百度云链接](https://pan.baidu.com/s/1ovv6gS6T80cQyTGgehpPsw)  提取码：fb8c
 * 《期权投资策略》   [百度云链接](https://pan.baidu.com/s/1JAKsmMq2GqOBQ2zi1hZJrQ)  提取码：ntr9
