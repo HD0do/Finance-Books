@@ -68,6 +68,28 @@
 * 《博弈论与经济行为 上下》    [百度云链接](https://pan.baidu.com/s/1zWoCOmGE8VWG4zQ_8fqEwA)  提取码：3u7f
 * 《笑傲股市》    [百度云链接](https://pan.baidu.com/s/1rF0Lrae_flHD-siAsXFPAg)  提取码：gz61
 
+**量化交易投资**
+
+
+* 《》   [百度云链接]()  
+* 《》   [百度云链接]()  
+* 《》   [百度云链接]()  
+* 《》   [百度云链接]()  
+* 《》   [百度云链接]()  
+* 《》   [百度云链接]()  
+* 《》   [百度云链接]()  
+* 《》   [百度云链接]()  
+* 《》   [百度云链接]()  
+* 《》   [百度云链接]()  
+* 《》   [百度云链接]()  
+
+* 《量化投资以python为工具》   [百度云链接](https://pan.baidu.com/s/1NodzvdMt7GhjIDwk9Crg9w)  提取码：tfv2
+* 《期货市场完全指南》   [百度云链接](https://pan.baidu.com/s/1ovv6gS6T80cQyTGgehpPsw)  提取码：fb8c
+* 《期权投资策略》   [百度云链接](https://pan.baidu.com/s/1JAKsmMq2GqOBQ2zi1hZJrQ)  提取码：ntr9
+* 《统计套利》   [百度云链接](https://pan.baidu.com/s/1Dv41LhbwJogguw03p8d5Bw)  提取码：srrp
+* 《海龟交易法则》  [百度云链接](https://pan.baidu.com/s/16a3jd1B5laQ1Od5olY3zFw) 提取码：lniw
+* 《Quantitative Equity Portfolio Management － An Active Approach to Portfolio》     [书籍连接](https://www.doc88.com/p-9428928321515.html)
+
 
 
 **行业分析**
