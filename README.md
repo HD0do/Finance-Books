@@ -69,21 +69,18 @@
 * 《笑傲股市》    [百度云链接](https://pan.baidu.com/s/1rF0Lrae_flHD-siAsXFPAg)  提取码：gz61
 
 **量化交易投资**
-
-
 * 《》   [百度云链接]()  
 * 《》   [百度云链接]()  
 * 《》   [百度云链接]()  
 * 《》   [百度云链接]()  
-* 《》   [百度云链接]()  
-* 《》   [百度云链接]()  
-* 《》   [百度云链接]()  
-* 《》   [百度云链接]()  
-* 《》   [百度云链接]()  
-* 《》   [百度云链接]()  
-* 《》   [百度云链接]()  
-* 《》   [百度云链接]()  
-
+* 《Quantitative Equity Portfolio Management》   [百度云链接](https://pan.baidu.com/s/1aStdVBSWOIDCZbqI-cnZfg)  提取码：mszc
+* 《波动率微笑：宽客大师教你建模》   [百度云链接](https://pan.baidu.com/s/1oHdCpaIZ7LwI1dh1uPvMSQ)  提取码：r5ca
+* 《打开量化投资的黑箱》   [百度云链接](https://pan.baidu.com/s/1lztbd67Z4VjtaYuSOFKCww) 提取码：jz1i
+* 《高频交易》   [百度云链接](https://pan.baidu.com/s/1y_pa_G4_UUldgSdrCbkaNg)  提取码：e531
+* 《高频交易员》   [百度云链接](https://pan.baidu.com/s/1wr3lH1yJC4APe6zSTqRusw)  提取码：zh08
+* 《解读量化投资：西蒙斯用公式打败市场的故事》   [百度云链接](https://pan.baidu.com/s/11vwc3cvzIW9WrmnnabqxwQ) 提取码：rh0k
+* 《宽客-华尔街顶级数量金融大师的另类人生》   [百度云链接](https://pan.baidu.com/s/1zlY_oMXSEMbs_jGuWXETeg)  提取码：fez0
+* 《宽客人生华尔街的数量金融大师》   [百度云链接](https://pan.baidu.com/s/1RgV_c9yXHwHiwJct_j33sQ)  提取码：t4x8
 * 《量化交易-如何建立自己的算法交易》   [百度云链接](https://pan.baidu.com/s/19irPsQFi2Ot6y6rWWRY3JQ)  提取码：4ifv
 * 《量化投资策略-如何实现超额收益》   [百度云链接](https://pan.baidu.com/s/13lX70GeSFCsn3mxi9Q4p3Q)  提取码：f9xd
 * 《量化投资策略与技术》   [百度云链接](https://pan.baidu.com/s/1R-5bOc1TQtxHPITYbgcsGA)  提取码：ibon
