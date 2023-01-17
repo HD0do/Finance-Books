@@ -69,10 +69,8 @@
 * 《笑傲股市》    [百度云链接](https://pan.baidu.com/s/1rF0Lrae_flHD-siAsXFPAg)  提取码：gz61
 
 **量化交易投资**
-* 《》   [百度云链接]()  
-* 《》   [百度云链接]()  
-* 《》   [百度云链接]()  
-* 《》   [百度云链接]()  
+* 《主动投资组合管理第2版-中文+英文PDF》   [百度云链接](https://pan.baidu.com/s/1wQO7z2k8yRFuiaSBk7GI_A)  提取码：7afx
+* 《波动率交易：期权量化交易员指南》   [百度云链接](https://pan.baidu.com/s/1CPNZiMX7FxOyeeJUBmITbQ)  提取码：6yrv
 * 《Quantitative Equity Portfolio Management》   [百度云链接](https://pan.baidu.com/s/1aStdVBSWOIDCZbqI-cnZfg)  提取码：mszc
 * 《波动率微笑：宽客大师教你建模》   [百度云链接](https://pan.baidu.com/s/1oHdCpaIZ7LwI1dh1uPvMSQ)  提取码：r5ca
 * 《打开量化投资的黑箱》   [百度云链接](https://pan.baidu.com/s/1lztbd67Z4VjtaYuSOFKCww) 提取码：jz1i
