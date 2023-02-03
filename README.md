@@ -37,7 +37,7 @@
 * 《技术分析指标大全 原书第2版(高清)》[百度云链接](https://pan.baidu.com/s/1E9wjvdei_DlbVqS1332QnA)  提取码：m48k
 * 《股市利润（英文版）》  [百度云链接](https://pan.baidu.com/s/1YQQs2kXVoadm_1mIh2oXOg)  提取码：pr63
 * 《期货交易实用指南》    [百度云链接](https://pan.baidu.com/s/1TGuaO6ZwCnLYswLBgakXQA )  提取码：cfrv
-
+* 《拯救华尔街》    [百度云链接](https://pan.baidu.com/s/1uvHoKsxsEBMqMPOePUdqUg)  提取码：ajk3
 
 
 
