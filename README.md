@@ -18,7 +18,7 @@
 * 《外汇交易进阶：从新手到大师的成功之路》 [百度云链接](https://pan.baidu.com/s/1f-4cAAOj1B9cPEc5fvw-RA)  提取码：35lf
 * 《证券分析 上》  [百度云链接](https://pan.baidu.com/s/1zTjw1tJxa7zlsjo07PSQeA)  提取码：2t68
 * 《证券分析 下》  [百度云链接](https://pan.baidu.com/s/1UB3ddoX24ezkvFQUj_LZdA)  提取码：44v3
-
+* 《魔鬼经济学合集（共4册）》  [百度云链接](https://pan.baidu.com/s/1mfjdjz9KxYGyrw5UkED7Sg) 提取码：vm23
 
 
 
