@@ -135,8 +135,8 @@
 如果确实有所帮助可以赞赏一下，支持本仓库有能力继续的不断更新下去......
 
 
-<img src="https://github.com/HD0do/Finance-Books/blob/main/resource/image/snipaste_20230215_211726.jpg" width = "200" height = "200" div align=center />
-
+<img src="https://github.com/HD0do/Finance-Books/blob/main/resource/image/snipaste_20230215_211726.jpg" width = "300" height = "300" div align=center />
+<img src="https://github.com/HD0do/Finance-Books/blob/main/resource/image/snipaste_20230215_211726.jpg" width = "300" height = "300" div align=center />
 <br/>
 
 <p align="left">感谢大家的鼓励和支持，最后祝大家健康 快乐 自由 赚钱~</p>
