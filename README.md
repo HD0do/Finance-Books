@@ -135,7 +135,7 @@
 如果确实有所帮助可以赞赏一下，支持本仓库有能力继续的不断更新下去......
 
 
-<img src="http:..." width = "100" height = "100" div align=center />
+<img src="https://github.com/HD0do/Finance-Books/blob/main/resource/image/snipaste_20230215_211726.jpg" width = "100" height = "100" div align=center />
 
 <br/>
 
