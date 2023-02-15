@@ -136,7 +136,6 @@
 
 <div align=center>![这里写图片描述](http:...)
 <img src="http:..." width = "100" height = "100" div align=center />
-<img src="http:..." width = 30% height = 30% />
 
 <br/>
 
