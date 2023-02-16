@@ -135,17 +135,14 @@
 如果确实有所帮助可以赞赏一下，支持本仓库有能力继续的不断更新下去......
 
 
-<center>
-
-<figure>
+<div align=center>
 
 <img src="https://github.com/HD0do/Finance-Books/blob/main/resource/image/snipaste_20230215_211726.jpg" width = "300" height = "300"  />
 
 <img src="https://img2018.cnblogs.com/blog/1735896/202001/1735896-20200116162140471-237299356.png" />
 
-</figure>
 
-</center>
+</div>
 
 
 <br/>
