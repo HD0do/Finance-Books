@@ -138,7 +138,7 @@
 <br/>
 
 <div align=center>
-<img src="https://gitee.com/dida0do/finance-books/blob/main/resource/image/snipaste_20230215_211726.jpg" width = "300" height = "300"  />
+<img src="https://github.com/HD0do/Finance-Books/blob/main/resource/image/snipaste_20230215_211726.jpg" width = "300" height = "300"  />
 <img src="https://github.com/HD0do/Finance-Books/blob/main/resource/image/snipaste_20230215_214153.png"  width = "300" height = "300"/>
 </div>
 
