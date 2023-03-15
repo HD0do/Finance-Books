@@ -89,7 +89,8 @@
 * 《海龟交易法则》  [百度云链接](https://pan.baidu.com/s/16a3jd1B5laQ1Od5olY3zFw) 提取码：lniw
 * 《Quantitative Equity Portfolio Management － An Active Approach to Portfolio》     [书籍连接](https://www.doc88.com/p-9428928321515.html)
 
-
+**外汇书籍**
+* 《外汇书籍合集》 [百度云链接](https://pan.baidu.com/s/1x6mr6XKKwEwNxlXlvFIebg) 提取码：06mq
 
 **行业分析**
 * 《竞争优势》  [百度云链接](https://pan.baidu.com/s/1sMJUsEqZc8VMMzrfMe6uAg)   提取码：qoyb
