@@ -37,8 +37,8 @@
 * 《滚雪球：巴菲特和他的财富人生 上下2册》[百度云链接](https://pan.baidu.com/s/1Td2Na3zhuHOhL1Chi4A1Tg) 提取码：mh3o
 * 《原则》 [百度云链接](https://pan.baidu.com/s/17s-5vHldXQTuBFtMZ2oXEA)  提取码：x8ft
 * 《全身而退 短线大师伯纳德·巴鲁克自传》[百度云链接](https://pan.baidu.com/s/16bOtwAmgRDNoVJbGM8wnQQ)  提取码：wdys
-
-
+* 《段永平商业模式/投资理念合集》[《合集链接》](https://github.com/HD0do/Finance-Books/tree/main/resource/person/%E6%AE%B5%E6%B0%B8%E5%B9%B3)
+*《巴菲特演讲合集》[合集···](https://github.com/HD0do/Finance-Books/tree/main/resource/person/%E5%B7%B4%E8%8F%B2%E7%89%B9)
 
 **05方法理念**
 * 《妙趣横生博弈论：事业与人生的成功之道》 [百度云链接](https://pan.baidu.com/s/1KAvKenWdupqUHLv502Ho5g) 提取码：82zq
