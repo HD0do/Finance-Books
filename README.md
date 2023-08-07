@@ -57,7 +57,8 @@
 * 《全身而退 短线大师伯纳德·巴鲁克自传》[百度云链接](https://pan.baidu.com/s/16bOtwAmgRDNoVJbGM8wnQQ)  提取码：wdys
 * 《穷查理宝典》  [百度云链接](https://pan.baidu.com/s/1Ge7PB9z7Hbmy9ppBSbatPw)   提取码：bz4x
 * 《股票大作手回忆录》  [百度云链接](https://pan.baidu.com/s/1an2_XABMToV8UToUGYGCuQ)  提取码：e470
-
+* 《段永平商业模式/投资理念合集》[《合集链接》](https://github.com/HD0do/Finance-Books/tree/main/resource/person/%E6%AE%B5%E6%B0%B8%E5%B9%B3)
+* 《巴菲特演讲合集》[合集···](https://github.com/HD0do/Finance-Books/tree/main/resource/person/%E5%B7%B4%E8%8F%B2%E7%89%B9)
 
 
 
