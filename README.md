@@ -104,6 +104,12 @@
 * 《统计学：从数据到结论》  [百度云链接](https://pan.baidu.com/s/1e1S7j3rOtsw5DP7M2Biemw)  提取码：rhep
 
 
+**07思想指导**
+* 《毛泽东选集4卷msi》[百度云链接](https://pan.baidu.com/s/1V4x1sWrk1-doBAcH6fFduA) 提取码：784x
+
+
+
+
 
 <br/>
 <br/>
