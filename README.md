@@ -45,13 +45,14 @@
 * 《巴菲特历年致股东书信原件-中英文版》 [百度云链接](https://pan.baidu.com/s/1405UootiGAMaCw7c8vcVOw) 提取码：4r8p
 * 《战胜华尔街（典藏版）》      [百度云链接](https://pan.baidu.com/s/1u92AKCLbVHzCpYdgIknwJQ)  提取码：oqkl
 * 《股票大作手操盘术》  [百度云链接](https://pan.baidu.com/s/14_MJ6Gp99xlqZPs-KShiFQ) 提取码：bs3g
-*  《唐朝三部曲 巴芒演义》   [百度云链接](https://pan.baidu.com/s/1uFXrrGfZ0JAyPvkggWxIqA)  提取码：916a
-*  《唐朝三部曲 价值投资实战手册》            [百度云链接](https://pan.baidu.com/s/1yOXbP3ZbVggpBaZ7caGr3A)   提取码：rvgp
-*  《唐朝三部曲 手把手教你读财报》   [百度云链接](https://pan.baidu.com/s/1pb9hbNnXJQu1EYdbVgV15Q)   提取码：jm3i
+* 《唐朝三部曲 巴芒演义》   [百度云链接](https://pan.baidu.com/s/1uFXrrGfZ0JAyPvkggWxIqA)  提取码：916a
+* 《唐朝三部曲 价值投资实战手册》            [百度云链接](https://pan.baidu.com/s/1yOXbP3ZbVggpBaZ7caGr3A)   提取码：rvgp
+* 《唐朝三部曲 手把手教你读财报》   [百度云链接](https://pan.baidu.com/s/1pb9hbNnXJQu1EYdbVgV15Q)   提取码：jm3i
+* 《唐书房文章合集2016-2023年度 》 [百度云链接](https://pan.baidu.com/s/197HsUnmSdsfPS6AAywSb_w?pwd=etgk)   提取码：etgk
 
 
 
-**04人物传记**
+**04人物传记/投资理念**
 * 《滚雪球：巴菲特和他的财富人生 上下2册》[百度云链接](https://pan.baidu.com/s/1Td2Na3zhuHOhL1Chi4A1Tg) 提取码：mh3o
 * 《原则》 [百度云链接](https://pan.baidu.com/s/17s-5vHldXQTuBFtMZ2oXEA)  提取码：x8ft
 * 《全身而退 短线大师伯纳德·巴鲁克自传》[百度云链接](https://pan.baidu.com/s/16bOtwAmgRDNoVJbGM8wnQQ)  提取码：wdys
@@ -59,6 +60,13 @@
 * 《股票大作手回忆录》  [百度云链接](https://pan.baidu.com/s/1an2_XABMToV8UToUGYGCuQ)  提取码：e470
 * 《段永平商业模式/投资理念合集》[《合集链接》](https://github.com/HD0do/Finance-Books/tree/main/resource/person/%E6%AE%B5%E6%B0%B8%E5%B9%B3)
 * 《巴菲特演讲合集》[合集···](https://github.com/HD0do/Finance-Books/tree/main/resource/person/%E5%B7%B4%E8%8F%B2%E7%89%B9)
+* 《巴菲特致股东信原文合集1956-2023 word版》 [百度云链接](https://pan.baidu.com/s/1kK3ZDNZ0zVSDaZgADO-e4g?pwd=1pu1) 提取码：1pu1
+* 《巴菲特股东大会问答录合集1994-2023 word版》 [百度云链接](https://pan.baidu.com/s/1ky6s-GDkQ2p8iZ6G2HJuXA?pwd=619a) 提取码：619a
+
+
+
+
+
 
 
 
