@@ -62,7 +62,7 @@
 * 《巴菲特演讲合集》[合集···](https://github.com/HD0do/Finance-Books/tree/main/resource/person/%E5%B7%B4%E8%8F%B2%E7%89%B9)
 * 《巴菲特致股东信原文合集1956-2023 word版》 [百度云链接](https://pan.baidu.com/s/1kK3ZDNZ0zVSDaZgADO-e4g?pwd=1pu1) 提取码：1pu1
 * 《巴菲特股东大会问答录合集1994-2023 word版》 [百度云链接](https://pan.baidu.com/s/1ky6s-GDkQ2p8iZ6G2HJuXA?pwd=619a) 提取码：619a
-
+* 《巴菲特之道（原书第3版）（典藏版）》[百度云链接](https://pan.baidu.com/s/1mSelLwH3ww3jinquGzbYeA?pwd=pwiw)  提取码: pwiw
 
 
 
