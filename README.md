@@ -63,6 +63,7 @@
 * 《巴菲特致股东信原文合集1956-2023 word版》 [百度云链接](https://pan.baidu.com/s/1kK3ZDNZ0zVSDaZgADO-e4g?pwd=1pu1) 提取码：1pu1
 * 《巴菲特股东大会问答录合集1994-2023 word版》 [百度云链接](https://pan.baidu.com/s/1ky6s-GDkQ2p8iZ6G2HJuXA?pwd=619a) 提取码：619a
 * 《巴菲特之道（原书第3版）（典藏版）》[百度云链接](https://pan.baidu.com/s/1mSelLwH3ww3jinquGzbYeA?pwd=pwiw)  提取码: pwiw
+* 《文明、现代化、价值投资与中国》 [百度云链接](https://pan.baidu.com/s/1DJmG5SwaFk8Y7Ea40ZryHg?pwd=n2if) 提取码: n2if
 
 
 
@@ -76,6 +77,7 @@
 * 《交易系统与方法（第五版）》[百度云链接](https://pan.baidu.com/s/1EJkNWUG3L8IAFBg-vGZE_A)    提取码：ec40
 * 《博弈论与经济行为 上下》    [百度云链接](https://pan.baidu.com/s/1zWoCOmGE8VWG4zQ_8fqEwA)  提取码：3u7f
 * 《笑傲股市》    [百度云链接](https://pan.baidu.com/s/1rF0Lrae_flHD-siAsXFPAg)  提取码：gz61
+
 
 **量化交易投资**
 * 《主动投资组合管理第2版-中文+英文PDF》   [百度云链接](https://pan.baidu.com/s/1wQO7z2k8yRFuiaSBk7GI_A)  提取码：7afx
